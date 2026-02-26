@@ -1,5 +1,5 @@
 [https://www.waliif-charity.org.et](https://github.com/waliifcharitydo-hue/https-www.-waliif-charity.org.et/tree/main)
-"WALIIF Charity & Development Organization (WCDO) is an Ethiopian non-profit empowering communities through sustainable livelihoods, food security, nutrition support, and inclusive development programs that strengthen resilience, promote equity, and improve lives nationwide."
+"WALIIF Charity & Development Organization (WCDO) was established in 2025 and officially registered and licensed in May 2026 as an Ethiopian non-profit organization. It is founded on the principles of community empowerment, social justice, and sustainable development, working to strengthen livelihoods, advance food security and nutrition, and promote inclusive, climate-resilient development programs that enhance equity and improve the well-being of vulnerable populations across the country."
 🌍 About Us (Waliif Charity & Development Organization (WCDO))
 Waliif Charity & Development Organization (WCDO) is a non-profit organization based in Ethiopia dedicated to supporting vulnerable communities through humanitarian assistance, livelihood improvement, social empowerment, and sustainable development initiatives.
 Our work focuses on promoting inclusive development, strengthening community resilience, and creating opportunities for disadvantaged populations.
